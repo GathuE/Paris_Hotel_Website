@@ -1,0 +1,3 @@
+Paris Hotel is a 3-Star Hotel located along Mfangano Street in the Central Business District of the Capital of Kenya.
+At Paris Hotel, we pride ourselves at offering exceptional hotel room services suitable for all your needs.Whether travelling for business or leisure,we offer you comfort on a budget.
+Just a few minutes walk into the central of the capital, you are assured of proximity location with easy access to a variety of essential services such as banking, shopping and a rich transport network.
